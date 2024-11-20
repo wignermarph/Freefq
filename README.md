@@ -59,7 +59,7 @@ Wget NET是一家以提供稳定翻墙为核心，支持Android安卓手机，IO
 
 ![Picture4.png](https://p.inari.site/usr/795/673d57413ea91.png)
 ## 4.北极星机场
-官网地址：[https://go.satr2000.com](https://go.satr2000.com)
+官网地址：[https://xuebispeed.com/](https://xuebispeed.com/)
 
 ⭕IPLC 专线翻墙服务
 
